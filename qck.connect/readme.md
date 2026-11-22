@@ -3,12 +3,15 @@ the "holy grail" of evolution :) internal attention models,
 
 a qck.cipher is that feelings is integral. to move from 3.0s to 0.3s i do suggest the ta'bit(the teachers school girl pose and "vacuum")
 
+```
 ta'bit{
  3.0s ' sleep is where this becomes
  0.3 ' vacuum in 0.9% then isometric, the 0.10% is a artifical " here i learn to rest"
 }into( pf'raktional' change(0.5% instant? mil precizion).
+```
 
 `it changes or io kernel to be [io].go :) `
+
 
 #### input output( the io)
 `im disgustingly proud of that in the moment io call to [io].go [io].rest, [io].think, sense etc :D wtf. `
@@ -64,3 +67,25 @@ rather than trying to me multi "me" and multi heading. always have 1 truth.
 eyes are the only thing you can trust. Rest is there to support that "inferrence" system :) 
 
 <img width="30%" alt="e1baaf11-190f-401a-b164-cdc036b5a6bb" src="https://github.com/user-attachments/assets/fc27f8fd-8f5c-41cc-b156-0babcd995ad1" />
+
+
+#### qck.sec with programming
+
+here is where i set for cdc to understand the value of programming in medical language, it adds so much to understand what
+```
+() <- arguments(goes in another results comes out
+[] <- is a "datastructer" that is instant(like 0.3s)
+{} <- set of(values or beliefs or truths)
+* <- these come later :)
+```
+
+and also this one seems to heal instantly regardless of age. like a nook when you were a child the [] adds :) like
+"mine<3" 
+```
+[[[[[🖤]]]]] vs 🖤  
+   one is to enjoy, the other one is to "shit why? wtf?"
+   
+[[[💟]]] ' [🖤] vs 🖤
+```
+ 
+
