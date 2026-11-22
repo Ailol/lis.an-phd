@@ -1,9 +1,7 @@
 # The 'la perl 
 the leidenfrost effekt, 
 "the white eyed babé"
-
-<br /> <br />
-
+<br />
 `krist, say no more. `
 
 <br /> 
