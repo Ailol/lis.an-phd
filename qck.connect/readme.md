@@ -25,7 +25,6 @@ always effort to pull out the best you until its comfort :) for me, that automat
 ```
 #qck.ai example of attent'
 
-<br />
 
 <img width="76" height="172" alt="errly morning" src="https://github.com/user-attachments/assets/8365b4ba-cf13-4e89-a83e-5e5e8fbb1478" />
 
