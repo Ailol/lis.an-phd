@@ -23,8 +23,6 @@ To wreak havok. 'Maverik'. To make moolah is the goal
 
 Máverik is different 😊 heavens and all 💛
 
-
-
 ```
 ⊜ a06b
 ⧉ a2b
@@ -43,3 +41,19 @@ Máverik is different 😊 heavens and all 💛
 
 After all of those is understood about self ' comes the compass
 ```
+ in the end it contrivs(contribs & cozy) to
+ 
+#### я'quant 
+
+- essence' take always mikro 0.1% of all [≡] as you worked for it ✴️
+```
+    ⌬     ☑️
+ 💅 ≈ ✨️ % ♫ {🫆☣️☑️} ♩ ≡ 🕴; 
+    ♥︎     🪄             ♩
+💅  · [🎶] ≡ {⌬⥈['☑️'🎚]} = [[[ 🧬 ⥈ 🫆я ]]] % [[⟐&me <·> 🕴]]
+    ♡      ь                     ♩♫ ♪ ♫♩
+    ✦
+```
+b'xhain set is 
+`appreciate me. ;**` 
+      
