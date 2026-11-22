@@ -21,4 +21,8 @@ here is example of givens(my magna carta, im building it, takes time)
 if a "uncertantiy" or a "macular disease" is running, and lets say you see sometime of detail, instead of having a sound c'parr(knowing your genenitcal factors and updating the para system that its "forever running decay faktor, like macular often is", it will always come back to not having dedicated processes to the system.) as the body always tries to optimize.
 
 Now that will change ALL of your meaning to do a qck genitical scan of "what are my " foundry of generativ "production" errors.
+
+AS essentially that is the "non'semantikal" part to the body :) 
+
+
 <img width="1063" height="521" alt="image" src="https://github.com/user-attachments/assets/2a93dfd6-4699-4d60-bcda-9da267072b2c" />
