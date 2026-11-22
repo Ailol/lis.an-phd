@@ -13,6 +13,7 @@ z'jab - "zombie for job ;)" noob amerikans. (this one i implore you to test "i a
 #### 'c^parr without genetikal factor.
 z'jab is to just say "without work, im dead in the water" when work is readily avaiable, its to enjoy your field and the home you build(the you, the bio'me). not even your child can take that from you :) 
 
+`z'jab affinity setz in around 800.000k + a respektable field like medicine in norway 2025. Thats when you just dont care about "deals and all" for someone like me :) ofc thats just "idle." `
 
 ### The running body 
 always effort to pull out the best you until its comfort :) for me, that automation didnt happen until september 2026
