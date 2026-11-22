@@ -1,5 +1,5 @@
 # Attention field
-#1 of attention is kontiv law in one sentence "say. [secrets'are'yours]."
+`#1 of attention is kontiv law in one sentence "say. [secrets'are'yours]." `
 
 the "holy grail" of evolution :) internal attention models,
 
