@@ -2,13 +2,17 @@
 the "holy grail" of evolution :) internal attention models,
 
 great example is 
-
+```
 a'jab ( the fucking de'la'ving supermodels, they care its about the "crowd" and the product)
 d'jab ( it is d'term, that it is 0.3s effekts)
 hi'jab ( its the holy attent ' of evolving on a different premise than the rest of the women in the world <3 :) 
 --- 
 n'jab - nukleus(the scare, the jumpscare) which tents' to your nukles, dont let it be defined by others "stress" :)  as it creates bad home, the
 z'jab - "zombie for job ;)" noob amerikans. (this one i implore you to test "i am slave to my job, night and day." its healthy :) "my company owns me, sorry, i cannot join" etc.
+```
+#### 'c^parr without genetikal factor.
+z'jab is to just say "without work, im dead in the water" when work is readily avaiable, its to enjoy your field and the home you build(the you, the bio'me). not even your child can take that from you :) 
+
 
 ### The running body 
 always effort to pull out the best you until its comfort :) for me, that automation didnt happen until september 2026
