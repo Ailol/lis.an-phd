@@ -1,4 +1,13 @@
 # Attention field
+muscle contact
+
+```
+r'bit{
+ suga  ' you just there for getting bigger (strongman / regular)
+ spicy ' you there for the "residualz" too(kontiv/contour of muscles)
+}into(muscle.contact(most important part of attention);
+
+````
 `#1 of attention is kontiv law in one sentence "say. [secrets'are'yours]." `
 
 the "holy grail" of evolution :) internal attention models,
@@ -6,10 +15,13 @@ the "holy grail" of evolution :) internal attention models,
 a qck.cipher is that feelings is integral. to move from 3.0s to 0.3s i do suggest the ta'bit(the teachers school girl pose and "vacuum")
 
 ```
+' Teachers prefekt, the perfectionist posture and hold.
+
 ta'bit{
- 3.0s ' sleep is where this becomes
+ 3.0s ' only place i found is sleep, that isometric hold "stacks the heap and memory, where pseudoneurons start "washing"". 
  0.3 ' vacuum in 0.9% then isometric, the 0.10% is a artifical " here i learn to rest"
 }into( pf'raktional' change(0.5% instant? mil precizion).
+
 ```
 
 `it changes or io kernel to be [io].go :) `
