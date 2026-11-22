@@ -1,4 +1,6 @@
 # Attention field
+#1 of attention is kontiv law in one sentence "say. [secrets'are'yours]."
+
 the "holy grail" of evolution :) internal attention models,
 
 a qck.cipher is that feelings is integral. to move from 3.0s to 0.3s i do suggest the ta'bit(the teachers school girl pose and "vacuum")
