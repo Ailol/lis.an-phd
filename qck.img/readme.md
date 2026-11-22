@@ -15,7 +15,7 @@ she doesnt understand, but the medical adept will be like "genius woman." - leid
 <br />
 <br /> 
 
-### The bridge is to burn ' the grip walk of women. 
+### The bridge is to burn ' the g'rip walk of women. 
 
 <img width="20%" alt="Ohshitarat-DiscordThePhysicalEntity720ph2641-ezgif com-speed (1)" src="https://github.com/user-attachments/assets/5f74a95f-6beb-4170-9ed2-2c5206db4f5a" />
 
