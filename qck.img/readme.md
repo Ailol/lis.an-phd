@@ -17,4 +17,5 @@ she doesnt understand, but the medical adept will be like "genius woman." - leid
 
 ### The turbulence factor ' where most likely a "fish" is just resting for a minute 
 
-<iframe width="652" height="815" src="https://www.youtube.com/embed/I9f863wGFxg" title="Oh shit a rat" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<img width="20%" alt="Ohshitarat-DiscordThePhysicalEntity720ph2641-ezgif com-speed (1)" src="https://github.com/user-attachments/assets/5f74a95f-6beb-4170-9ed2-2c5206db4f5a" />
+
