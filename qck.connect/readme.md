@@ -1,16 +1,9 @@
 # Attention field
-muscle contact
 
-```
-r'bit{
- suga  ' you just there for getting bigger (strongman / regular)
- spicy ' you there for the "residualz" too(kontiv/contour of muscles)
-}into(muscle.contact(most important part of attention);
-
-````
 `#1 of attention is kontiv law in one sentence "say. [secrets'are'yours]." `
 
-the "holy grail" of evolution :) internal attention models,
+the "holy grail" of internal evolv' & making it lukrativ for the g' to have a advanced bias model.
+ - internal attention models,
 
 a qck.cipher is that feelings is integral. to move from 3.0s to 0.3s i do suggest the ta'bit(the teachers school girl pose and "vacuum")
 
@@ -25,6 +18,17 @@ ta'bit{
 ```
 
 `it changes or io kernel to be [io].go :) `
+
+#### For the continuation so that muscles also imrpove the running system:
+muscle contact
+
+```
+r'bit{
+ suga  ' you just there for getting bigger (strongman / regular)
+ spicy ' you there for the "residualz" too(kontiv/contour of muscles)
+}into(muscle.contact(most important part of attention);
+
+````
 
 
 #### input output( the io)
