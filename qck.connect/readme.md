@@ -1,7 +1,19 @@
 # Attention field
 the "holy grail" of evolution :) internal attention models,
 
-great example is 
+a qck.cipher is that feelings is integral. to move from 3.0s to 0.3s i do suggest the ta'bit(the teachers school girl pose and "vacuum")
+
+ta'bit{
+ 3.0s ' sleep is where this becomes
+ 0.3 ' vacuum in 0.9% then isometric, the 0.10% is a artifical " here i learn to rest"
+}into( pf'raktional' change(0.5% instant? mil precizion).
+
+`it changes or io kernel to be [io].go :) `
+
+#### input output( the io)
+`im disgustingly proud of that in the moment io call to [io].go [io].rest, [io].think, sense etc :D wtf. `
+
+#### great example is 
 ```
 a'jab ( the fucking de'la'ving supermodels, they care its about the "crowd" and the product)
 d'jab ( it is d'term, that it is 0.3s effekts)
