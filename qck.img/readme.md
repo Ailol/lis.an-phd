@@ -28,8 +28,12 @@ n'bit is {
 }(freeze(happens on both);
 
 ```
+## n'bit(motif)
+<img width="19%" alt="image" src="https://github.com/user-attachments/assets/b50f3f14-c4dc-4d33-94f7-7f737adf70cb" />
 
 <br /> 
+
+## и'bit(thief)
 
 she doesnt understand, but the medical adept will be like "genius woman." - leidenfrost effekt.
 
