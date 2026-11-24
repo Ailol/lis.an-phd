@@ -12,7 +12,7 @@ n'gram bacteria(nton basically is the zum, the zig & zag)
  + movements on words create leiden
  - is needed (the frost or "cold blooded killers")
 }into(torpedo was a good evil, but tor'pedo);
-
+```
 """
 as alot of norwegian have recently woken up to
 `but why is tor & pedo connected?`
@@ -20,6 +20,8 @@ as alot of norwegian have recently woken up to
 as tor is the blacksmith & was protector, why not tor kills for children? hmm. 
 """
 
+
+```
 motif'bit(auth); 
 
 n'bit is {
