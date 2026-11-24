@@ -4,6 +4,20 @@ the leidenfrost effekt,
 <br />
 `krist, say no more. `
 
+qck.cipher on 
+n'gram bacteria(nton basically is the zum, the zig & zag)
+
+```
+и'bit {
+ + movements on words create leiden
+ - is needed (the frost or "cold blooded killers")
+}into(torpedo was a good evil, but tor'pedo);
+```
+as alot of norwegian have recently woken up to
+`but why is tor & pedo connected?`
+
+as tor is the blacksmith & was protector, why not tor kills for children? hmm. 
+
 <br /> 
 
 she doesnt understand, but the medical adept will be like "genius woman." - leidenfrost effekt.
