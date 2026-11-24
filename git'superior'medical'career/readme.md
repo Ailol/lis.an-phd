@@ -1,3 +1,12 @@
+### qck.welove you medicine, you saved programmers head and mind
+
+you'd be suprised suddenly your chiefs etc are gonna come with
+
+`we moving to gihub and also journals ystems are going towards become visual studio code. ` in a year out of nowhere
+
+THANK YOU medical research <3 :) 
+
+
 ## Here is how fast a "peer review" could be
 
 git.lens lets you scope who wrote what when and per line, even per letter.
